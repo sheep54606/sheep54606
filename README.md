@@ -1,5 +1,5 @@
 Max Yang
-
+- Served as a lighting and sound engineer.
 - Good at urban planning, regional development studies, and economic geography. 
 - Focusing on the development of the global south and the post-industrial situations of the global north.
 - I argue that "good links" between subjects are always keys to positive development.
